@@ -1,0 +1,1 @@
+# resclima_duran
